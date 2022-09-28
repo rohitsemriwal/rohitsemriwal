@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 App Developer and Educator<br>🎥 1.7K+ Subs on YouTube<br>💬 Ask me about Flutter and other Tech Related Stuff<br>🌐 Instagram: @rohitsemriwal
+💻 App Developer and Educator<br>🎥 2.1K+ Subs on YouTube<br>💬 Ask me about Flutter and other Tech Related Stuff<br>🌐 Instagram: @rohitsemriwal
 
 
 ## 🌐 Socials:
